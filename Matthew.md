@@ -73,17 +73,49 @@ he called His Name JESUS.
 
 ##2##
 
-**1** Now after Jesus was born in Bethlehem of Judea in the days of Herod the kking, behold, wise men from the East came to Jerusalem,
+**1** Now after Jesus was born in Bethlehem of Judea in the days of Herod the king, behold, wise men from the East came to Jerusalem,
 
 **2** saying, "Where is He who has been born King of the Jews? For we have seen His star in the East and have come to worship Him."
 
-**3** When Herod the king heard _this_, he was troubled, and all Jerusalem wwith him.
+**3** When Herod the king heard _this_, he was troubled, and all Jerusalem with him.
 
 **4** And when he had gathered all the chief priests and scribes of the people together, he inquired of them where the Christ was to be born.
 
 **5** So they said to him, "In Bethelehem of Judea, for thus it is written by the prophet:
 
-**6**	_'But you, Bethelehem, in the land of Judah,
+**6**	_"'But you, Bethelehem, in the land of Judah,
 	Are not the least among the rules of Judah;
 	For out of you shall come a Ruler
 	Who will shepherd My people Israel.'"_
+
+**7** Then Herod, when he had secretly called the wise men, determined from 
+them what time the star appeared.
+
+**8** And he sent them to Bethelehem and said, "Go and search carefully for 
+the young Child, and when you have found *Him*, bring back word to me, that 
+I may come and worship Him also.
+
+**9** When they heard the king, they departed; and behold, the star which 
+they had seen in the East went before them, till it came and stood over 
+where the young Child was.
+
+**10** when they saw the star, they rejoiced with exceedingly great joy.
+
+**11** And when they had come into the house, they saw the young Child with 
+Mary His mother, and fell down and worshiped Him.  And when they had opened 
+their treasures, they presented gifts to Him: gold, frankincense, and myrrh.
+
+**12** Then, being divinely warned in a dream that they should not return to 
+Herod, they departed for their own country another way.
+
+**13** Now when they had departed, behold, an angel of the Lord appeared to 
+Joseph in a dream, saying, "Arise, take the young Child and His mother, flee 
+to Egypt, and stay there until I bring you word; for Herod will seek the 
+young Child to destroy Him."
+
+**14** When he arose, he took the young Child and His mother by night and 
+departed for Egypt,
+
+**15** and was there until the death of Herod, that it might be fulfilled 
+which was spoken by the Lord through the prophet, saying, *"Out of Egypt 
+I called My Son."*
