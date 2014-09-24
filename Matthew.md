@@ -119,3 +119,31 @@ departed for Egypt,
 **15** and was there until the death of Herod, that it might be fulfilled 
 which was spoken by the Lord through the prophet, saying, *"Out of Egypt 
 I called My Son."*
+
+**16** Then Herod, when he saw taht he was deceived by the wise men, was
+exceedingly angry; and he sent forth and put to death all the male children 
+who were in Bethlehem and in all its districts, from two years old and under, 
+according to the time which he had determined from the wise men.
+
+**17** Then was fulfilled what was spoken by Jeremiah the propet, saying:
+
+**18** *"A voice was heard in Ramah, Lamentation, weeping and great mourning, 
+Rachel weeping for for her children, Refusing to be comforted, Because they 
+are no more."*
+
+**19** Now when Herod was dead, behold, an angel of the Lord appeared in a 
+dream to Joseph in Egypt,
+
+**20** saying, "Arise, take the young Child and His mother, and go to the land 
+of Israel, for those who sought the young Child's life are dead."
+
+**21** Then he arose, took the young Child and His mother, and came into the 
+land of Israel.
+
+**22** But when he heard that Archelaus was reigning over Judea instead of 
+his father Herod, he was afraid to go there.  And being warned by God in a 
+dream, he turned aside into the region of Galilee.
+
+**23** And he came and dwelt in a city called Nazareth, that it might be 
+fulfilled which was spoken by the prophets, "He shall be called a Nazarene."
+
